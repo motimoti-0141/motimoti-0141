@@ -3,7 +3,7 @@
 - 🌱 I’m leave in Japan. so, I speak Japanese
 - 📫 My mail addres: motimoti0141.a@outlook.jp
 - ↳If you have any questions, please send them to us! (Reply may be delayed)
-
+-             
 - こんにちは～ @motimoti-0141 です〜
 - コロナ禍で東方に沼って、最近では、アニメをずっと見てます(笑)
 - (流石に)日本在住の日本人です。
